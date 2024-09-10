@@ -16,4 +16,5 @@
        
                                 Mea is my name , you can call me Tallulah if you want !!
 
-                                    I listen to Tyler The Creator, if you like that, plz int    
+                                    I listen to Tyler The Creator, if you like that, plz int    ![image](https://github.com/user-attachments/assets/938484b0-99ab-45c6-b05a-776bcf550fcb)
+
