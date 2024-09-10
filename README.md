@@ -24,5 +24,8 @@
         ![image](https://github.com/user-attachments/assets/08c4004a-9103-4b96-ba55-83d40b237e84) ![image](https://github.com/user-attachments/assets/23006717-033b-4407-92fb-e1515825bd67) ![image](https://github.com/user-attachments/assets/61f88598-7ee9-4b43-aee2-60d13b51e94b) ![image](https://github.com/user-attachments/assets/1ea120bc-6782-4069-b316-6b9b1b7ebb76)
 
 
+(Nothing is animating for some reason but it's ok lol)
+
+
 
 
