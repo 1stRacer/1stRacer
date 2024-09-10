@@ -1,10 +1,9 @@
-  ![image](https://github.com/user-attachments/assets/1be56df9-af68-403b-b80e-8c18311fb203)
-
-
+***
 
 
                              **Hallo!! ^_^  ★  Welcome to my page.**
 
+***
 
                      ︶︶︶ ⊹ ︶︶︶⠀୨♡୧⠀︶︶︶ ⊹ ︶︶︶
 
