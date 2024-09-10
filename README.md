@@ -19,4 +19,4 @@
 
 ***
 
-                  **I'm usually around the mcyt fandom, afk mostly but I sometimes visit the genshin + sth area !!**
+                  I'm usually around the mcyt fandom, afk mostly but I sometimes visit the genshin + sth area !!
