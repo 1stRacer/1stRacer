@@ -21,4 +21,5 @@
                 **I'm usually around the mcyt area, sometimes i visit the genshin + sth though!!**
 
 
-        ![image](https://github.com/user-attachments/assets/2fe11749-65e1-4133-8658-dd07d25c8fa3)
+        ![image](https://github.com/user-attachments/assets/08c4004a-9103-4b96-ba55-83d40b237e84)
+
