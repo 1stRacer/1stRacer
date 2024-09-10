@@ -1,7 +1,7 @@
-  ![image](https://github.com/user-attachments/assets/af30c954-cc51-4add-a4d9-fef5ad82f55b)
+  ![image](https://github.com/user-attachments/assets/4076fd02-a6f3-4c34-b340-e14080c65b2a)
 
 
-                                      (cred for ianrkives in tumblr for divider.)
+
 
 
 
