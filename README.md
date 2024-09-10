@@ -1,4 +1,5 @@
-  ![image](https://github.com/user-attachments/assets/4076fd02-a6f3-4c34-b340-e14080c65b2a)
+  ![image](https://github.com/user-attachments/assets/1be56df9-af68-403b-b80e-8c18311fb203)
+
 
 
 
@@ -15,4 +16,4 @@
        
                                 Mea is my name , you can call me Tallulah if you want !!
 
-                                    I listen to Tyler The Creator, if you like that, plz int
+                                    I listen to Tyler The Creator, if you like that, plz int    
