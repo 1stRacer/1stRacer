@@ -13,7 +13,7 @@
 
 
        
-                                Mea is my name , you can call me Tallulah if you want !!
+                                Mea is my name , you can call me Carre/Carrera if you want !!
 
                                     I listen to Tyler The Creator, if you like him, plz int    ![image](https://github.com/user-attachments/assets/938484b0-99ab-45c6-b05a-776bcf550fcb)
 
