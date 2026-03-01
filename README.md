@@ -1,13 +1,9 @@
-![image](https://github.com/user-attachments/assets/447313c9-7fcf-498d-93ad-12ebd27172d0)
 
 
-![image](https://github.com/user-attachments/assets/b5345b1e-9432-4a06-a2dd-e22cd98d4d9d)
-
-                           <a href="https://discordid.netlify.app/?id=873902369354706945">DISCORD</a>
+${\color{lightblue}          yo \space fav \space racer \space on \space the \space track}$ <img align="right" width="470" height="470" src="https://files.catbox.moe/uzsv98.webp"> 
 
 
-![image](https://github.com/user-attachments/assets/4b1c89dd-e9f3-4429-8089-51322ae47774)
+       <a href="https://rentry.co/n1teb0i">rentry</a>  <a href="https://lovinglycarrots.atabook.org">atabook</a>  <a href="https://guns.lol/lovinglycarrotz">guns.lol</a>
 
+           ༝                <img align="" width="30" height="30" src="https://64.media.tumblr.com/db7bb4b1b921734224b1dbba89ef8235/96e9d608338cb88c-43/s75x75_c1/ac140f84e13891200e251942221e9659b56f0eef.gifv">
 
-
-zzZ
