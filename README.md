@@ -1,6 +1,6 @@
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&pause=1000&color=555388&multiline=true&width=435&lines=The+Fastest+Creature+Alive" alt="Typing SVG" /></a>
                 
-<img align="left" src="https://files.catbox.moe/tpijmu.webp" width="425" height="455">
+<img align="left" src="https://files.catbox.moe/tpijmu.webp" width="425" height="465">
 
 <br>
 <br>
